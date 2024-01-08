@@ -6,7 +6,7 @@ if you like this repo please give it a star ⭐
 
 ## Connect with me
 
-* [Linkedin]([https://www.linkedin.com/in/shouvikmistry/])
+* [Linkedin](https://www.linkedin.com/in/shouvikmistry/)
 
 
 
